@@ -1,1 +1,1 @@
-My name Is Phanice Ambuso Otiende,I have a Bachelor's Degree imn Medical Laboratory Sciences and a Master's Degree in Public Health. My research interests are Cancer Genomics, Bioinformatics and Antimicrobial Resistance. I just finished a Genomic Internship with Hackbio where I learnt some skills that intend to use as I horn my bioinformatics skills.
+
